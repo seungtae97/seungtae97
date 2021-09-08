@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @seungtae97
+- 👋 Hi, I’m @seungtae
 
